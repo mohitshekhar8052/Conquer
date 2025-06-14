@@ -1,1 +1,1 @@
-# Conquer!
+# Conquer
